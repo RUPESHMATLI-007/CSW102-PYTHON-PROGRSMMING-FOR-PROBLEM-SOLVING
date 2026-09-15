@@ -1,1 +1,7 @@
 # CSW102-PYTHON-PROGRSMMING-FOR-PROBLEM-SOLVING
+
+## PYTHON-PROGRAMMING-FOR-PROBLEM-SOLVING coding
+
+## python
+
+## solved python coding
